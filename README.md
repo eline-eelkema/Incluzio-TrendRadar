@@ -1,0 +1,1 @@
+# Incluzio-TrendRadar
